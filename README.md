@@ -31,7 +31,7 @@
 **Tennis Trainer @ Btsv Eintracht Braunschweig (2014 - 2021)**
 -Leader of youth and adult group trainings including tournament coaching 
 
-**  "Education Advocate @ ZDF (2018)**
+**Education Advocate @ ZDF (2018)**
 - Combating educational inequalities and raising awareness of educational issues in numerous talks in schools, specifically within the framework of promoting educational opportunities for first-generation students, culminating in a television documentary on the largest German television network. The documentary showcased my efforts and discussion of specialized scholarship programs for first-generation students.
 [Documentary](https://www.youtube.com/watch?v=kfKCBck-NYI)
 
