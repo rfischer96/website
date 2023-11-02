@@ -1,7 +1,7 @@
 # Research Assistant
 
 ## Interests
--Currently, I am interested in complex systems. My goal is to work on 'large population models' that collectively learn from millions of interacting agents to guide decision making
+Currently, I am interested in complex systems. My goal is to work on 'large population models' that collectively learn from millions of interacting agents to guide decision making
 
 ## Education							       		
 - M.Sc., Economics	| University Cologne (_since October 2022_)         		
