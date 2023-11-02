@@ -1,6 +1,6 @@
 # Data Analyst
 
-#### Technical Skills: Python, R, S
+#### Technical Skills: Python, R, SQL
 
 ## Education							       		
 - M.Sc., Economics	| University Cologne (_since October 2022_)         		
@@ -22,3 +22,20 @@
 **Research Assistant @ CoronaNet Project at LMU Munich (_March 2020 - February 2022_)**
 - Conducted data collection for novel study evaluating the impact of government responses to the COVID 19 crisis.
 - [Project Publication](https://www.nature.com/articles/s41562-020-0909-7)
+
+## Social Engagement 
+
+**Steering committee member @ zis foundation (_March 2019 - present)**
+-I am a mentor for the zis foundation (est. 1956) which supports youth aged 16-21 in realizing individual projects that are based on travel abroad. 
+
+**Tennis Trainer @ Btsv Eintracht Braunschweig (2014 - 2021)**
+-Leader of youth and adult group trainings including tournament coaching 
+
+**  "Education Advocate @ ZDF (2018)**
+- Combating educational inequalities and raising awareness of educational issues in numerous talks in schools, specifically within the framework of promoting educational opportunities for first-generation students, culminating in a television documentary on the largest German television network. The documentary showcased my efforts and discussion of specialized scholarship programs for first-generation students.
+[Documentary](https://www.youtube.com/watch?v=kfKCBck-NYI)
+
+
+
+
+
