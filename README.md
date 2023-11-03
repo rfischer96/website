@@ -30,10 +30,10 @@ I am interested in complex systems. My goal is to work on 'large population mode
 - I am a mentor for the zis foundation (est. 1956) which supports youth aged 16-21 in realizing individual projects that are based on travel abroad. 
 
 **Tennis Trainer @ Btsv Eintracht Braunschweig (2014 - 2021)**
-- Leader of youth and adult group trainings including tournament coaching 
+- Trainer of youth and adult groups. 
 
 **Education Advocate @ ZDF (2018)**
-- Combating educational inequalities and raising awareness of educational issues in numerous talks in schools, specifically within the framework of promoting educational opportunities for first-generation students, culminating in a television documentary on the largest German television network. The documentary showcased my efforts and discussion of specialized scholarship programs for first-generation students.
+- Combating educational inequalities and raising awareness of educational issues in numerous talks in schools, specifically within the framework of promoting educational opportunities for first-generation students, culminating in a television documentary on the German television network ZDF. 
 [Documentary](https://www.youtube.com/watch?v=kfKCBck-NYI)
 
 
